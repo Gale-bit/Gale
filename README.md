@@ -1,0 +1,2 @@
+# Gale
+Jangan Nakal
